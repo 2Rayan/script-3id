@@ -11,5 +11,3 @@
 وكل عام وانتم بخير
 
 https://discord.gg/bTpHJ58MrP
-
- @everyone 
